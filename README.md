@@ -1,0 +1,2 @@
+# ConquerJack
+Rule by Blackjack
